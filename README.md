@@ -1,1 +1,0 @@
-# anvandarnamnet.github.io
